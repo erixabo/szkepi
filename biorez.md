@@ -1,4 +1,4 @@
-# A biorezonancia fizikai lehetetlensége: Jel, kód, értelmezés
+# A biorezonancia fizikai lehetetlensége: Jel, kód, értelmezés   cikkvázlat
 
 ## 1. Bevezető
 
